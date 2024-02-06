@@ -2,7 +2,7 @@
 - 👀 Estou interessado em coisa
 - 🌱 Atualmente estou aprendendo a ser melhor
 - 💞️ Procuro colaborar em varias coisas
-- 📫 Como entrar em contato, comigo mandando mensangem
+- 📫 Como entrar em contato, comigo mandando mensangem no meu dhiogo.lopes@escola.pr.gov.br
 - 😄 Pronomes:ele/dele
 - ⚡ Curiosidade:ja peguei mestre no free fire
 
